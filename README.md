@@ -6,6 +6,7 @@ Warum das gemacht wird?
 Ich finde das die Geschichte des CCC und den Kongress erhalten und archiviert werden sollte.
 Ebenso habe ich vor diese eventuell in 13x18 cm auszudrucken, einrahmen und im CCCHH irgendwann eine "Wall of Congress" zu erstellen.
 
+Beim Uploaden bitte die datein nach xxC3.dateiendung
 Und diese eventuell auf kommenden Kongressen zu präsentieren.
 
 MFG Hammi <3
